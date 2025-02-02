@@ -1,10 +1,10 @@
-im Hoormazd, an infp who is studying computer engineering.
+im Hoormazd,im studying computer engineering.
 a semi programmer who lives with music and loves football, gaming, literature, movies and tech world.
 a beginner in this universe who loves to learn new things.
 currently gaining experience in python.
 i like designing and im interested in software and game development, looking to work on AI,ML projects.
 happy to be helpful and useful to others.
-if you want to be in touch with me you can mainly message me on my telegram or discord both with HMZ6411 id.
+
 
 
 
